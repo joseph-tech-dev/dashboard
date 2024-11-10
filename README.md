@@ -1,1 +1,1 @@
-The code is free to use and modif
+The code is free to use and modify
